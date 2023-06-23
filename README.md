@@ -1,4 +1,4 @@
-### Hi, I'm Taylor 👋🏻
+### Hello, I'm Taylor 👋🏻
 
 I'm the founder, director, designer & developer of [Obliquul](https://obliquul.com/) (watch this space)
 
